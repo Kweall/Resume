@@ -1,1 +1,1 @@
-![Резюме](Resume_Churkin___21.png)
+![Резюме](Resume_Churkin_22.png)
